@@ -1,3 +1,3 @@
 # NewCorner
 
-## HOSTED LINK:-
+## HOSTTED LINK:-https://rhushi1998.github.io/NewCorner/
